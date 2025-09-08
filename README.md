@@ -1,1 +1,1 @@
-I'm Tryon Lanister
+I'm Tyrion Lanister
